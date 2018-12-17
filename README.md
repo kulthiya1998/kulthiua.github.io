@@ -1,1 +1,1 @@
-# kulthiua.github.io
+# kulthiya.github.io
